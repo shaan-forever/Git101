@@ -1,1 +1,3 @@
-Hi, i'm shaann
+Hi, i'm shantanu thakur
+1st yr, COE, B6
+
